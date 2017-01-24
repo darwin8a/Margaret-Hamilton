@@ -1,4 +1,4 @@
-# author: Darwin Michael Ochoa Ruiz
+# Author: Darwin Michael Ochoa Ruiz
 # Scientist: Margaret-Hamilton  
 1. Margaret Hamiltion was basically the brains behind the apollo 11 landing that took place in 1969.                         
 2. Just recently, in 2016, she was awarded the medal of freedom, which is one of the highest honors a US civilian can attain.
